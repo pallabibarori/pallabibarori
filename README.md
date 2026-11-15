@@ -16,6 +16,11 @@ I'm a **Marketing Specialist at Amazon** with a passion for understanding custom
 - 🌱 Continuously learning, building, and experimenting
 - 🧠 Curious about how great products find their audience
 
+### A Little About me apart from work
+- 🐕 I have a Dog
+- 📕 I love to read books
+- I love to learn new things like Digital art, Ukulele, etc
+
 **Let's connect, collaborate, and build something meaningful!** 🌐
 
 - 💼 Connect with me on [LinkedIn](https://www.linkedin.com/in/pallabi-barori-9b5060199/)
